@@ -1,1 +1,2 @@
-# Note-to-self
+Hi there 👋
+👀 I’m interested in Software Development, Cyber Security, and Cloud Technologies.🌱 I believe in certifying yourself especially in the I.T indestry, hence i have dedicated to educate myself by anymeans. Go ahead and check out my Linkedin and whilst at it follow me.👯 I’m looking to collaborate on innovative projects that align with the fields I am interested in. 📫 How to reach me: malcolmtmukorera@outlook.com
